@@ -4,3 +4,11 @@ It focuses on Object Oriented Programming. And it is supposed to be a bit funny.
 
 
 NO it is not haha.
+
+Life is Life
+...
+
+
+
+
+NANA NA NANA
